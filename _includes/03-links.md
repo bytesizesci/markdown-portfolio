@@ -1,1 +1,2 @@
-Replace this with a link to your a GitHub or social media profile.
+LinkedIn: linkedin.com/in/kristen-james-217089b7
+Twitter: @bytesizesci
