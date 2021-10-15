@@ -1,1 +1,3 @@
-# Kristen 
+# Kristen James
+## Scientist and Artist
+
