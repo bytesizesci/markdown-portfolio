@@ -1,1 +1,1 @@
-Github: @bytesizesci
+[Github](https://github.com/bytesizesci) 
