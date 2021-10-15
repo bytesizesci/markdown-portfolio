@@ -1,1 +1,2 @@
-![An image of me on the top of Mt. Yale at an elevation of over 14,000 feet](https://user-images.githubusercontent.com/49044832/137251328-4a2ca0d6-4700-48e6-83fb-cf2de1420c70.jpeg)
+![Snow capped mountains with a lake in the foreground](https://user-images.githubusercontent.com/49044832/137430251-aff81a50-a696-4a23-bced-949bd573d824.jpeg)
+
